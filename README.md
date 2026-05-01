@@ -5,7 +5,7 @@
 
 you're the one who gave it away,<br> so why do you want it back so bad?<br> wipe it away with a kiss for me, then <br> the hands on the clock will never move again <br> spiral downward into this **BLOODY VALENTINE**
 
-remaking other links rn [atabook](https://paratised.atabook.org)
+remaking other links [prnscc](https://pronouns.cc/@reikaoru) [atabook](https://paratised.atabook.org)
 
 </div>
 
